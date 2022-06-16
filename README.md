@@ -3,4 +3,4 @@ In 2016 I was 1 of 2 Predictive Modelers for Gainsco; a 400 employee Company. I 
 
 I charge $900/hour for a phone consultation on this type of work. And if required to be part time, a small percentage of Equity ownership in company is necesarry.
 
-Contact at Whatsapp: 773-990-9745
+Contact Whatsapp: 773-990-9745
